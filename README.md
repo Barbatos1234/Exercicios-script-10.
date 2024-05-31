@@ -1,0 +1,1 @@
+# Exercicios-script-10.
